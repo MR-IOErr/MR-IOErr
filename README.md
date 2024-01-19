@@ -9,7 +9,7 @@
 
 - Ask me about **DevOps/SRE/Cloud**
 
-- 📫 You can connect to me with ==> **arianmoafizad@gmail.com**
+- 📫 You can connect with me  **arianmoafizad@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
